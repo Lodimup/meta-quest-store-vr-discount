@@ -1,5 +1,5 @@
 # meta quest store vr discount
-This is a collection of referral codes that will give you 25% discount
+This is a collection of referral codes that will give you 25% discount to Meta Quest games and utilities.
 # Games
 Assassin’s Creed® Nexus VR (Quest)
 https://www.oculus.com/appreferrals/SuperSlowSloth/5812519008825194/
